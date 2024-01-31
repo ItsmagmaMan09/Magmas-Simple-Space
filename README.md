@@ -10,8 +10,8 @@
 
 ## Features!
 
-- Our Whole Home Galaxy!
-- A Special Magma Galaxy **Comming Soon...**
+- Our Whole Home Solar System!
+- A Special Magma Solar System **Comming Soon...**
 - Simple To Craft Rocket
 - New Aliens to Encounter
 - A Whole Ton Of New Blocks And Advancements!
